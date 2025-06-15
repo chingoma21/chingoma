@@ -1,0 +1,2 @@
+# chingoma
+copiar e colar
